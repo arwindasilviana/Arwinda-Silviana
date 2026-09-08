@@ -5,7 +5,7 @@
 
 
 ### arwindasilviana@gmail.com
-    instagram.xom/arwindasz
+    instagram.com/arwindasz
 
 ### SUMMARY
 ***
