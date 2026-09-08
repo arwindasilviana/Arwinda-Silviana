@@ -1,7 +1,7 @@
 
 <img src="IMG_20260829_160930.jpg" width="150">
 
-# Hi, my name is Arwinda-Silviana 👋
+# Hi, my name is Winda 👋
 
 
 ### arwindasilviana@gmail.com
