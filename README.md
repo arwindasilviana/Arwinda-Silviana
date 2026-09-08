@@ -1,5 +1,5 @@
 
-<img src="https://github.com" width="150" align="right">
+<img src="https://github.com" width="150">
 
 # Hi, my name is Arwinda-Silviana 👋
 
