@@ -10,7 +10,7 @@
 ### SUMMARY
 ***
 
-I graduated from Padjadjaran University majoring in English Literature with a concentration in Linguistics. I like to meet new people, new places, new adventures to improve my life. I'm interested in writing, photography, analyzing, and anything related to the society. Detail-oriented and motivated language professional with strong English listening and comprehension skills. Experienced in creating English–Indonesian subtitle translations through personal projects, including listening to spoken dialogue, accurately capturing meaning, and producing clear subtitles. Highly attentive to spelling, grammar, punctuation, and contextual details. Eager to develop a professional career in audio transcription.
+I graduated from Padjadjaran University majoring in English Linguistics with a concentration in Linguistics. I like to meet new people, new places, new adventures to improve my life. I'm interested in writing, photography, analyzing, and anything related to the society. Detail-oriented and motivated language professional with strong English listening and comprehension skills. Experienced in creating English–Indonesian subtitle translations through personal projects, including listening to spoken dialogue, accurately capturing meaning, and producing clear subtitles. Highly attentive to spelling, grammar, punctuation, and contextual details. Eager to develop a professional career in audio transcription.
 
 ### SKILLS
 ***
