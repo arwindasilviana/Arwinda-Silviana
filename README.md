@@ -1,5 +1,5 @@
 
-IMG_20260829_160930.jpg](https://github.com/user-attachments/assets/38645c1f-fd18-446f-9691-2b908f7c8afa)
+<img src="https://github.com" width="150" align="right">
 
 # Hi, my name is Arwinda-Silviana 👋
 
